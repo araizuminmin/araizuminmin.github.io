@@ -1,0 +1,1 @@
+# araizuminmin.github.io
